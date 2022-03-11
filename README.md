@@ -1,3 +1,6 @@
+Contact me anytime at: (818)641-4695
+
+
 - 👋 Hi, I’m @sekchai-gmr
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
