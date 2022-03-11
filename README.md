@@ -1,4 +1,4 @@
-Contact me anytime at: (818)641-4695
+Contact me anytime at: sek.chai@globalmusicrights.com
 
 
 - 👋 Hi, I’m @sekchai-gmr
